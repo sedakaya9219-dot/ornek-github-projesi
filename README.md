@@ -1,0 +1,1 @@
+# ornek-github-projesi
